@@ -15,9 +15,9 @@ Now this is where the science in movies problem comes into force.
 
 ---
 
-The problem in the movie that I would like to talk about is how the dinosours behave in these movies.  In Jurassic Park, and expecialy the sequels, they are not realy treated any differently from any other monster. They will persue humans across great distances and behave incredibly agressively.
+The problem in the movie that I would like to talk about is how the dinosours behave in these movies.  In Jurassic Park, and expecialy the sequels, they are not really treated any differently from any other monster. They will persue humans across great distances and behave incredibly agressively.
 
-The only slight problem with this is that this wouldnt be how dinosours would behave, if you were going to keep them in captivity. 
+The only slight problem with this is that this wouldnt be how dinosours would behave, if you were going to keep them in captivity.
 
 ### Humans as an Extinctionary event.
 
